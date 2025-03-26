@@ -1,1 +1,1 @@
-"# r_d_lekce_6" 
+Chuck Norris dokáže postavit sněhuláka z deště
